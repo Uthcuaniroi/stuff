@@ -1,1 +1,1 @@
-The American Constitution for School.
+The American Constitution for School
